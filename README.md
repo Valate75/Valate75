@@ -1,5 +1,5 @@
 # Introduction
-- Hello, I am Emil going with my online nickname Valate75
+- Hello, I am Emil going under my online nickname Valate75
 - I come from norway and study IT in school
 - Most my skills comes from freetime tinkering
 # About me
